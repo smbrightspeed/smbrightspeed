@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @smbrightspeed
+- I’m recently joined in CH-DWH enhancement for TSA e project
